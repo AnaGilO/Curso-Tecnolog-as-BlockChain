@@ -1,1 +1,1 @@
-# Curso-Tecnolog-as-BlockChain
+# Curso-Tecnologias-BlockChain
